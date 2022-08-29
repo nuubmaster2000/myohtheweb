@@ -1,3 +1,3 @@
 # myohtheweb
 e
-[link](https://https://r.myohthegod.net/)
+[link](https://r.myohthegod.net/)
